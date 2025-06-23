@@ -11,7 +11,7 @@
 
 点击访问：<a href="https://74mao.com/">Telegram频道传送门</a>
 
-点击访问：<a href="https://hj-216.pages.dev/">>51黑料精彩影视</a>
+点击访问：<a href="https://hj-216.pages.dev/">51黑料精彩影视</a>
 
 点击访问：<a href="https://hj-218.pages.dev/">51黑料不打烊黑料网视频</a>
 
@@ -27,7 +27,7 @@
 
 点击访问：<a href="https://hj-149.pages.dev/">暗网禁区网</a>
 
-点击访问：<a href="https://chiguaqunzhongde.pages.dev/">伊人直播爆料</a>
+点击访问：<a href="https://chiguaqunzhongde.pages.dev/">50度灰不打烊新网页版</a>
 
 点击访问：<a href="https://hj-156.pages.dev/">微密圈破解版</a>
 
